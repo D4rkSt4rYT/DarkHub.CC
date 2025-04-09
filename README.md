@@ -5,4 +5,4 @@ My YT Channel:
 https://www.youtube.com/@D4rk_St4rYT 
 And for support...i dont have support lol if u find a error u can tell me in the comments of the showcase video of the script!And im gonna try fix that (never)
 There isnt any copyrights its fully customizable LOL
-If u find copyright or u buyed the script u got sscammed
+If u buyed it (IMPOSSIBLE) u got SCAMMED bc u are dumbass
